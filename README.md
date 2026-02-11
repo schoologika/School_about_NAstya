@@ -1,0 +1,1 @@
+# School_about_NAstya
